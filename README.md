@@ -1,0 +1,2 @@
+# amogussussy
+qwioeurhjnvkdjieuv
